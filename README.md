@@ -7,4 +7,3 @@
 📊 Currently building projects that focus on practical problem-solving, including environmental impact and customer behavior.
 
 🚀 Always learning and growing — feel free to check out my repositories or connect with me on LinkedIn.
-https://www.linkedin.com/in/habibakhaled9-?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
